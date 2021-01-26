@@ -1,3 +1,3 @@
-### Hi there 👋
-:musical_note:
+### Hej hej !
+:rocket: I'm atteding the one year programm @ DCI 
 
