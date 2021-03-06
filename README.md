@@ -4,4 +4,4 @@
 
 ~~~
 
-:plant: I've worked more then a decade in the lighting department for movies shot in Berlin. 
+:earth_africa: I've worked more then a decade in the lighting department for movies shot in Berlin. 
