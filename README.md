@@ -1,4 +1,4 @@
-### Hej hej !
+:bath: Hej hej !
 
 :rocket: Trained as a full stack web developer @ [Digital Career Institute](https://digitalcareerinstitute.org/courses/web-development-course).
 
