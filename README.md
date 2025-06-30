@@ -1,4 +1,4 @@
 :rainbow: Hej hej !
 
-:rocket: On saturdays, I free myself time to move on here with personal projects.
+:rocket: Now and then, I free myself time moving on here with personal projects.
 
